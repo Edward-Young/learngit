@@ -1,1 +1,1 @@
-we are champions.
+we are world champions.
